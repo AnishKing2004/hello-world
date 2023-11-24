@@ -1,2 +1,6 @@
 # hello-world
-Just another repository 
+₍₍ ◝(・ω・)◟ ⁾⁾
+( /・・)ノ
+┌( ಠ_ಠ )┘
+凸(⊙▂⊙✖ )
+(☝ ՞ਊ ՞)☝
